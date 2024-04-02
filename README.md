@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @8606302040
+- 👀 I’m interested in trading
+- 🌱 I’m currently learning trading
+- 💞️ I’m looking to collaborate on trading
+- 📫 How to reach me +918606302040
+- 😄 Pronouns: Anzil
+- ⚡ Fun fact: 😇
